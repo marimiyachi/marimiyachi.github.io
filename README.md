@@ -1,2 +1,0 @@
-marimiyachi.github.io
-=====================
